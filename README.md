@@ -1,3 +1,3 @@
-# Welcome to Shawn's Github page !v!
+# Welcome to Shawn's Github page 🫶
 ---
 ## About
